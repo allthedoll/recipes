@@ -10,9 +10,7 @@
 3 medium cloves of garlic, diced
 1 can tomatos (peeled whole, diced, etc. it doesn't really matter imho, just chop the whole tomatos with a spatula while you stir)
 1 small can of tomato paste (or if you have a tube, about 1/4c)
-1 tablespoon cumin
-2 teaspoons coriander
-2 teaspoons oregano
+Herbs to taste: chili powder, cumin, oregano, garlic powder, onion powder, paprika, cayenne pepper, salt, and pepper
 ~3 cups (380g) butternut squash or sweet potato, cut into 1/2-inch cubes  (I thaw a frozen bag)
 2 1/2 cups (592ml) low-sodium vegetable broth
 1/2 cup (75g) frozen corn (I like to brown it in butter first for extra flavor)
@@ -20,7 +18,7 @@ salt and pepper to taste
 ~2 tbsp olive oil
 butter (optional)
 
-**Optional toppings:** cilantro, pepper, greek yogurt, lime, shredded cheese, avocado, shredded carrots, smokey hot sauce, etc.
+**Optional toppings:** cilantro, pepper, greek yogurt, lime, shredded cheese, avocado, shredded carrots, smokey hot sauce, jalapeño, etc.
 
 ## Directions
 
